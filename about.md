@@ -10,8 +10,9 @@ Hi! I'm **Md. Sarwar Jahan Sabit**. I've just passed from 12th grade few months 
 
 ### More Information
 
-Co - Founder, Co - Admin & Cheif Content Creator @ [techSMSBD](https://www.techsmsbd.com "techSMSBD বাংলা")
-System Administrator & Customer Support Representative @ [রচনা স্টোর (rochonastore.com)](https://www.rochonastore.com "রচনা স্টোর")
+**Co - Founder, Co - Admin & Cheif Content Creator** @ [**techSMSBD**](https://www.techsmsbd.com "techSMSBD বাংলা")
+
+**System Administrator & Customer Support Representative** @ [**রচনা স্টোর** (rochonastore.com)](https://www.rochonastore.com "রচনা স্টোর")
 
 ### Contact me
 
